@@ -177,22 +177,15 @@
   
 </details>
 
-##
-###  🌟推荐
-**【流量光】** 中转+专线高速机场 (**9.9元300G每月**) (**75元包年每月300G**) (**55元1000GB不限时**)✅畅爽晚高峰 解锁ChatGPT、全流媒体(送小火箭)
-</br>🌐官网：[https://llgjc.org](https://llgjc.org/#/register?code=bIUDEPTu)
-
 # 
 <center>
-<details><summary><strong> ☕ [点击展开] 赞赏支持 ~🧧</strong></summary>
-*我非常感谢您的赞赏和支持，它们将极大地激励我继续创新，持续产生有价值的工作。*
+
+*
 
 - **USDT-TRC20:** `TWTxUyay6QJN3K4fs4kvJTT8Zfa2mWTwDD`
 - **TRX-TRC20:** `TWTxUyay6QJN3K4fs4kvJTT8Zfa2mWTwDD`
 
-<div align="center"> 
-  <img src="https://github.com/user-attachments/assets/e6cdc42a-6374-4722-b833-601738f72196" width="200"></br> 
-  TRC10/TRC20扫码支付 
+
 </div> 
 </details>
 </center>
